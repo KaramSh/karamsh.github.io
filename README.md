@@ -1,1 +1,0 @@
-# karamsh.github.io
